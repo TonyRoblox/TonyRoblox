@@ -2,3 +2,4 @@
 - I’m interested in roblox
 - I’m currently learning noting
 - How can i coding
+- pls help me with coding in roblox, use discord to teach how to code. Discord name is TonyDesigner.
